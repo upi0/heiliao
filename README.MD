@@ -4,11 +4,11 @@
 
 永久入口需翻墙：https://155.fun
 
-App下载地址：https://f5c.nyhaan.com
+App下载地址：https://2c04.nyhaan.com
 
 官方免费q、vx群：https://url50.co/100
 
-18色导航：https://0b.wvvyul.com
+18色导航：https://4a.wvvyul.com
 
 官方推特：https://twitter.com/heiliao8
 
