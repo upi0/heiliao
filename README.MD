@@ -1,14 +1,14 @@
 黑料网最新地址
 
-免翻墙入口：https://hl04.co
+免翻墙入口：https://hl05.co
 
 永久入口需翻墙：https://155.fun
 
-App下载地址：https://2c04.nyhaan.com
+App下载地址：https://f0c.nyhaan.com
 
 官方免费q、vx群：https://url50.co/100
 
-18色导航：https://4a.wvvyul.com
+18色导航：https://4098.wvvyul.com
 
 官方推特：https://twitter.com/heiliao8
 
