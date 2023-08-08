@@ -2,13 +2,15 @@
 
 免翻墙入口：https://hl06.co
 
+科学上网：https://zztt15.com
+
 永久入口需翻墙：https://155.fun
 
-App下载地址：https://221e.nyhaan.com
+App下载地址：https://031e.nyhaan.com
 
 官方免费q、vx群：https://url50.co/100
 
-18色导航：https://2cf.xjvrmn.com
+18色导航：https://6b9.xjvrmn.com
 
 官方推特：https://twitter.com/heiliao8
 
@@ -45,7 +47,7 @@ tg投稿：https://t.me/hxx668
 
 4.吃瓜卖片人员
 
-请联系唯一tg号：https://t.me/xhxyh
+请联系唯一tg号：https://t.me/hlw7f
 *****************
 >下载黑料不打烊APP可免费无限畅看
 
