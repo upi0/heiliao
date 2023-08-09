@@ -1,15 +1,14 @@
 黑料网最新地址
 
-免翻墙入口：https://hl06.co
+免翻入口：https://hl06.co
 
-
-永久入口需翻墙：https://155.fun
+永久入口：https://155.fun
 
 官方App下载地址：https://71a7.nyhaan.com
 
-官方免费q、vx群：https://url50.co/100
+官方免费吃呱群：http://b.gwljw81.cn/s/n19
 
-18色导航：https://aa9a.xjvrmn.com
+18涩导航：https://aa9a.xjvrmn.com
 
 官方推特：https://twitter.com/heiliao8
 
@@ -30,11 +29,11 @@ https://github.com/heiliao
 我们有偿收稿
 邮箱投稿： hltougao@gmail.com
 
-tg投稿：https://t.me/hxx668
+电报投稿：https://t.me/hxx668
 
 如需vx。qq投稿请和上面两个联系方式取得联系后索要
 ***********
-唯一商务合作：https://t.me/nvfalao
+唯一商务合作电报联系：@nvfalao
 *************
 目前正在招人
 
@@ -46,9 +45,9 @@ tg投稿：https://t.me/hxx668
 
 4.吃瓜卖片人员
 
-请联系唯一tg号：https://t.me/hlw7f
+请联系唯一电报号：https://t.me/hlw7f
 *****************
->下载黑料不打烊APP可免费无限畅看
+>下载官方APP可免费无限畅看
 
 >如网站和视频加载失败，请关掉vpn，切换4g/5g/wifi
 
@@ -59,4 +58,4 @@ tg投稿：https://t.me/hxx668
 >以上方法都不行可尝试联系管理员反馈更多问题
 
 >如果邮箱获取最新地址无法打开，请尝试附带截图或更多信息，方便我们更精准解决问题并及时更换，让料友们顺畅浏览，正常使用。
-(此信息更新于 2023-8-2)
+(此信息更新于 2023-8-9)
