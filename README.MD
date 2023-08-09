@@ -6,11 +6,11 @@
 
 永久入口需翻墙：https://155.fun
 
-App下载地址：https://031e.nyhaan.com
+官方App下载地址：https://71a7.nyhaan.com
 
 官方免费q、vx群：https://url50.co/100
 
-18色导航：https://6b9.xjvrmn.com
+18色导航：https://aa9a.xjvrmn.com
 
 官方推特：https://twitter.com/heiliao8
 
