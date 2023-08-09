@@ -2,7 +2,6 @@
 
 免翻墙入口：https://hl06.co
 
-科学上网：https://zztt15.com
 
 永久入口需翻墙：https://155.fun
 
