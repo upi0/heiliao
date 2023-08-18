@@ -4,11 +4,11 @@
 
 永久入口：https://155.fun
 
-官方App下载地址：https://71a7.nyhaan.com
+官方App下载地址：https://b851.nyhaan.com
 
 官方免费吃呱群：http://b.gwljw81.cn/s/n19
 
-18涩导航：https://aa9a.xjvrmn.com
+18涩导航：https://a1fa.xjvrmn.com
 
 官方推特：https://twitter.com/heiliao8
 
