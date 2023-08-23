@@ -1,14 +1,14 @@
 黑料网最新地址
 
-免翻入口：https://hl06.co
+免翻入口：https://hl08.co
 
 永久入口：https://155.fun
 
-官方App下载地址：https://b851.nyhaan.com
+官方App下载地址：https://4a7a.nyhaan.com
 
 官方免费吃呱群：http://b.gwljw81.cn/s/n19
 
-18涩导航：https://a1fa.xjvrmn.com
+18涩导航：https://e2.xjvrmn.com
 
 官方推特：https://twitter.com/heiliao8
 
