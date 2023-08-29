@@ -4,17 +4,15 @@
 
 永久入口：https://155.fun
 
-官方App下载地址：https://4a7a.nyhaan.com
+官方App下载地址：https://fifgngvb.nyhaan.com
 
 官方免费吃呱群：http://b.gwljw81.cn/s/n19
 
-18涩导航：https://e2.xjvrmn.com
+18涩导航：https://ertyufgh.xjvrmn.com
 
 官方推特：https://twitter.com/heiliao8
 
 官方电报（telegram）群：https://t.me/heiliao1
-
-黑料论坛：https://4553.fun
 ******************
 新地址获取方法一：
 155dizhi@gmail.com
@@ -57,5 +55,6 @@ https://github.com/heiliao
 
 >以上方法都不行可尝试联系管理员反馈更多问题
 
->如果邮箱获取最新地址无法打开，请尝试附带截图或更多信息，方便我们更精准解决问题并及时更换，让料友们顺畅浏览，正常使用。
-(此信息更新于 2023-8-9)
+>更多问题可前往官网查看：
+https://jue.nyczqg.com/archives/8150.html
+(此信息更新于 2023-8-28)
