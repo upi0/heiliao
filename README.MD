@@ -56,5 +56,5 @@ https://github.com/heiliao
 >以上方法都不行可尝试联系管理员反馈更多问题
 
 >更多问题可前往官网查看：
-https://jue.nyczqg.com/archives/8150.html
+https://hl09.co/?path=/archives/8150.html
 (此信息更新于 2023-8-30)
