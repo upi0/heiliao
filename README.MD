@@ -1,4 +1,4 @@
-黑料网最新地址
+黑米斗网最新地址
 
 免翻入口：https://hl09.co
 
@@ -31,7 +31,7 @@ https://github.com/heiliao
 
 如需vx。qq投稿请和上面两个联系方式取得联系后索要
 ***********
-唯一商务合作电报联系：@nvfalao
+唯一商务合作电报联系：https://t.me/nvfalao
 *************
 目前正在招人
 
@@ -57,4 +57,3 @@ https://github.com/heiliao
 
 >更多问题可前往官网查看：
 https://hl09.co/?path=/archives/8150.html
-(此信息更新于 2023-8-30)
