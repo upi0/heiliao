@@ -8,7 +8,7 @@
 
 官方免费吃呱群：http://b.gwljw81.cn/s/n19
 
-18涩导航：https://rufjvn.xjvrmn.com
+18涩导航：https://dhcb.nrojqa.com
 
 官方推特：https://twitter.com/heiliao8
 
