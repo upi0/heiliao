@@ -1,6 +1,6 @@
 黑米斗网最新地址
 
-免翻入口：https://hl10.co
+免翻入口：https://hl11.co
 
 永久入口：https://155.fun
 
@@ -8,7 +8,7 @@
 
 官方免费吃呱群：http://b.gwljw81.cn/s/n19
 
-18涩导航：https://dhcbdz.nrojqa.com
+18涩导航：https://36b.ffrouy.com
 
 官方推特：https://twitter.com/heiliao8
 
@@ -56,4 +56,4 @@ https://github.com/heiliao
 >以上方法都不行可尝试联系管理员反馈更多问题
 
 >更多问题可前往官网查看：
-https://hl10.co/?path=/archives/8150.html
+https://hl11.co/?path=/archives/8150.html
