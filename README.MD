@@ -1,6 +1,5 @@
-黑米斗网最新地址
-
-免翻入口：https://hl11.co
+黑料网最新地址，免费吃瓜，解决找瓜难题
+最新入口：https://hl11.co
 
 永久入口：https://155.fun
 
@@ -8,7 +7,7 @@
 
 官方免费吃呱群：http://b.gwljw81.cn/s/n19
 
-18涩导航：https://36b.ffrouy.com
+18涩导航：https://q352.lrnvun.com
 
 官方推特：https://twitter.com/heiliao8
 
