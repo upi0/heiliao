@@ -1,4 +1,5 @@
 黑料网最新地址，免费吃瓜，解决找瓜难题
+
 最新入口：https://hl12.co
 
 永久入口：https://155.fun
@@ -12,6 +13,9 @@
 官方推特：https://twitter.com/heiliao8
 
 官方电报（telegram）群：https://t.me/heiliao1
+
+如果直接点打不开，复制链接去浏览器打开
+
 ******************
 新地址获取方法一：
 155dizhi@gmail.com
