@@ -1,6 +1,6 @@
 黑料网最新地址，免费吃瓜，解决找瓜难题
 
-最新入口：https://hl14.co
+最新入口：https://hl15.co
 
 永久入口：https://155.fun
 
@@ -59,4 +59,4 @@ https://github.com/heiliao
 >以上方法都不行可尝试联系管理员反馈更多问题
 
 >更多问题可前往官网查看：
-https://hl13.co/?path=/archives/8150.html
+https://hl15.co/?path=/archives/8150.html
