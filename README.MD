@@ -1,6 +1,6 @@
 黑料网最新地址，免费吃瓜，解决找瓜难题
 
-最新入口：https://hl17.co
+最新入口：https://hl18.co
 
 永久入口：https://155.fun
 
@@ -8,7 +8,7 @@
 
 官方免费吃呱群：http://b.gwljw81.cn/s/n19
 
-18涩导航：https://0eb.klcqqh.com
+18涩导航：https://07b9.zfgluv.com
 
 官方推特：https://twitter.com/heiliao8
 
