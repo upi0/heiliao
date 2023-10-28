@@ -6,7 +6,7 @@
 
 官方App下载地址：https://cefb.gcvudo.com
 
-官方免费吃呱群：http://b.gwljw81.cn/s/n19
+官方免费吃呱群：http://c.ql90hv4yzl.cn/s/n19
 
 18涩导航：https://07b9.zfgluv.com
 
